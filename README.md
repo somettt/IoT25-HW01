@@ -1,4 +1,4 @@
 # IoT25-HW01
 
-https://github.com/user-attachments/assets/9eacd2a0-c580-4157-b7cc-08fd6cefa328
 
+![IMG_5857](https://github.com/user-attachments/assets/c257ea3d-6ba8-4e57-abb4-4712d1298fd1)
